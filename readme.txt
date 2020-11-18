@@ -1,0 +1,1 @@
+Szevasztok tavsztok
